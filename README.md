@@ -1,1 +1,1 @@
-Deepanshu Singh Kanwal - AI engingeer
+Deepanshu Singh Kanwal - AI engineer
